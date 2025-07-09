@@ -10,4 +10,4 @@
 
 这些链接为您提供精选的高清免费视频资源，涵盖了多种国产精品内容，适合您在多平台上观看，包括热门的国产影片、最新的电影资源以及一些值得一看的精品。每个视频都能为您带来不一样的体验，提供了绝佳的观看质量，尽情享受这些丰富的内容吧！
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/thuoc20250709/thuoc3 ）</span>
